@@ -62,7 +62,7 @@
     </tr>
     <tr>
       <td>Maximum Discount</td>
-      <td>Up to 78% OFF</td>
+      <td>Up to 95% OFF</td>
     </tr>
     <tr>
       <td>Free Domain</td>
@@ -113,3 +113,6 @@
 
 </body>
 </html>
+Note: If Coupon Code is Not Working for New Users, <a href="https://hostinger.in?REFERRALCODE=1RISHABH418" target="_blank">
+ Visit With This Special Link
+</a>
