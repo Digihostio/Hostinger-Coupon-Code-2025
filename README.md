@@ -1,6 +1,6 @@
 <h1>Hostinger Coupon Code 2025 (USA): 95% OFF + Free Domain & SSL</h1>
 
-<p>Want to launch your website in 2025? With <strong>Hostinger coupon code <code>1RISHABH418</code></strong>, you get <strong>up to 78% OFF</strong> on hosting plans, plus a <strong>free domain name</strong>, <strong>SSL certificate</strong>, <strong>email</strong>, and more. It's one of the most affordable and powerful hosting solutions for bloggers, small businesses, and startups in the USA.</p>
+<p>Want to launch your website in 2025? With <strong>Hostinger coupon code <code>1RISHABH418</code></strong>, you get <strong>up to 95% OFF</strong> on hosting plans, plus a <strong>free domain name</strong>, <strong>SSL certificate</strong>, <strong>email</strong>, and more. It's one of the most affordable and powerful hosting solutions for bloggers, small businesses, and startups in the USA.</p>
 
 <p>Just click the direct links below — the coupon is automatically applied at checkout. No need to enter it manually!</p>
 
